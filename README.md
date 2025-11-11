@@ -1,1 +1,1 @@
-# Lashkov-Morozova-Tihonova
+# Lashkov-Morozova-Tikhonova
